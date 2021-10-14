@@ -8,4 +8,4 @@ I was the Vice President of Professional Development of Alpha Kappa Psi at UCI.
 
 [179972965_1086318581860283_1353614711010571869_n](https://user-images.githubusercontent.com/19508013/137351072-ec5cf96c-4721-45f2-9028-70fb553ba1c7.jpeg)
 
-![180468970_1086318481860293_4002472352217256831_n](https://user-images.githubusercontent.com/19508013/137351000-e2615b4f-3072-40bc-a918-18bebce921b9.jpeg)!
+<img width="757" alt="Screen Shot 2021-10-14 at 8 37 19 AM" src="https://user-images.githubusercontent.com/19508013/137351184-c116cd7f-8b07-45d2-ae0b-2fad800eaa6a.png">
