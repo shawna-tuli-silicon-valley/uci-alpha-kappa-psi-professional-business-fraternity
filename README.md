@@ -1,2 +1,3 @@
-# uci-alpha-kappa-psi-business
-UCI | Led Alpha Kappa Psi business fraternity in developing its newest brothers into principled business leaders.
+# Alpha Kappa Psi
+
+I was the Vice President of Professional Development of Alpha Kappa Psi at UCI. 
