@@ -1,4 +1,4 @@
-# Alpha Kappa Psi Business Fraternity 💙💛
+# Alpha Kappa Psi Professional Business Fraternity 💙💛
 
 I was the Vice President of Professional Development of Alpha Kappa Psi at UCI. 
 
