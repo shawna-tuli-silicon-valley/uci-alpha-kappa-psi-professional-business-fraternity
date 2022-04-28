@@ -1,6 +1,6 @@
 ![AlphaKappaPsi_Horizontal-Website](https://user-images.githubusercontent.com/19508013/165651666-b4d907e6-36a9-4c03-a273-4b8e65f40616.png)
 
-I was the Vice President of Professional Development of Alpha Kappa Psi at UCI. 
+I led 50+ professionals as Professional Chair and made our new brothers into principled business leaders.
 
 ![IMG_0053](https://user-images.githubusercontent.com/19508013/156455548-01fa4594-6451-4cc8-9c51-895f09ddfbdf.jpeg)
 
