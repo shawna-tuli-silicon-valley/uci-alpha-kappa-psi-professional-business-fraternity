@@ -1,4 +1,4 @@
-![university-of-california-irvine-uci-vector-logo](https://user-images.githubusercontent.com/19508013/169393572-6d3675b4-a598-42be-8f4e-a1839933c43c.png)
+![standard](https://user-images.githubusercontent.com/19508013/169393845-8c97248b-2360-4b9f-825b-f3590cc54057.png)
 ![AlphaKappaPsi_Horizontal-Website](https://user-images.githubusercontent.com/19508013/165651666-b4d907e6-36a9-4c03-a273-4b8e65f40616.png)
 
 I led 50+ professionals as Professional Chair and made our new brothers into principled business leaders.
