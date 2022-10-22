@@ -1,8 +1,6 @@
 ![standard](https://user-images.githubusercontent.com/19508013/169393845-8c97248b-2360-4b9f-825b-f3590cc54057.png)
 ![AlphaKappaPsi_Horizontal-Website](https://user-images.githubusercontent.com/19508013/165651666-b4d907e6-36a9-4c03-a273-4b8e65f40616.png)
 
-I led 50+ professionals as Professional Chair and made our new brothers into principled tech and business leaders.
-
 ![IMG_0053](https://user-images.githubusercontent.com/19508013/156455548-01fa4594-6451-4cc8-9c51-895f09ddfbdf.jpeg)
 
 <img width="431" alt="Screen Shot 2021-10-14 at 8 42 33 AM" src="https://user-images.githubusercontent.com/19508013/137351547-06f0e0ed-0f82-49fd-bae3-31acc214e4fc.png">
