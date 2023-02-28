@@ -1,5 +1,6 @@
 ![standard](https://user-images.githubusercontent.com/19508013/169393845-8c97248b-2360-4b9f-825b-f3590cc54057.png)
 ![165828651-fb0eb979-2623-4c65-a7d0-59dd0783c1ab](https://user-images.githubusercontent.com/19508013/221848527-457f5c61-d276-4949-9d7d-fef5cefeb0c7.png)
+![165651074-294a90e7-d2b2-48c3-bf0a-29bf07f98bcc](https://user-images.githubusercontent.com/19508013/221849527-23b1061c-d152-4c55-a8ae-72c811a3b7a9.png)
 ![AlphaKappaPsi_Horizontal-Website](https://user-images.githubusercontent.com/19508013/165651666-b4d907e6-36a9-4c03-a273-4b8e65f40616.png)
 
 ![IMG_0053](https://user-images.githubusercontent.com/19508013/156455548-01fa4594-6451-4cc8-9c51-895f09ddfbdf.jpeg)
